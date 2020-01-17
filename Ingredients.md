@@ -5,3 +5,4 @@
 - butter
 - a bunch of chives
 - a hardcore metal spoon
+- a skilled cooker 
